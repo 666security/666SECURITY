@@ -1,7 +1,7 @@
 ### Hi there, I'm Oskar
 
 
-## I'm a Husband, Developer, Woodworker, Mechanic and Teacher
+## I'm a IT STUDENT
 - 👯 I’m looking to collaborate with other content creators
 
 ### Connect with me:
